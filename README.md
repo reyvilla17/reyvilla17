@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 You can reach me at ramon.villalobos1@outlook.com or through LinkedIn https://www.linkedin.com/in/ramon-villalobos1/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Going into the Tech/Cyber career field from a none technical career.
+- ⚡ Fun fact: I Skii in Alyeska Skii resort as a first timer, you can imagine how that went!
 
 <!---
 reyvilla17/reyvilla17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
